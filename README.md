@@ -24,3 +24,6 @@ Japanese_readme_No_3_of_IWAZOU_Audio.txt
 
 
 しばらく、バージョン3.00.00.001のままです。
+
+
+ただの、そこらへんにいるおじちゃんですよ
